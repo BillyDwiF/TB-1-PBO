@@ -1,4 +1,4 @@
 ## Tugas Besar 1
 
-Nama : Dimas Khalik Rahmahdin
-NIM : 41821010105
+Nama : Billy Dwi Febrianto
+NIM : 41821010106
